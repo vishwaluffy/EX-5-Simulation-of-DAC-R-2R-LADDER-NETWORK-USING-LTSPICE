@@ -33,7 +33,7 @@
 
 
 ## DESIGN AND CALCULATION
-![WhatsApp Image 2025-11-30 at 17 11 01_94cf0448](https://github.com/user-attachments/assets/316a62c3-068f-4998-9e00-86666c7733eb)
+![WhatsApp Image 2025-12-04 at 11 06 38_05aa32a4](https://github.com/user-attachments/assets/d502b2d3-4b13-483d-9128-b46218b08755)
 
 
 
